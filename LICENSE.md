@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator rare Scripts is the best easter tap simulator Script, featuring private server access and unlimited stamina. Safe and powerful
 
 
 
